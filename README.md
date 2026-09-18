@@ -13,5 +13,7 @@
 + 𝐁𝐢𝐬𝐞𝐱𝐮𝐚𝐥 & Demisexual
 
 
-+ cred to @akumamazoku on Tumblr.
++ cred to @akumamazoku on Tumblr for the image.
+
+  AdminVirus shippers dni always please. I have minor exceptions for friends.
 
