@@ -11,6 +11,6 @@
 
 
 + cred to @akumamazoku on Tumblr for the image.
-
+<p align="center">
   AdminVirus shippers dni always please. I have minor exceptions for friends.
 
