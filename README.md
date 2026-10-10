@@ -1,13 +1,17 @@
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=22&pause=1000&color=316749&width=435&lines=I+watched+you+bloom.;Into+the+prettiest+flower.;I+adored+you+so...;I+treated+you+as+my+own.;Yet+you+pushed+me+away.;You+used+me+for+my+kindness.;Now+all+that+you+will+see%2C;Are+my+cries+of+eternal+hatred.;My+hands+that+once+cradled+you%2C;Are+stained+in+your+crimson.)](https://git.io/typing-svg)
+
+
 <p align="center">
-𝐆𝐞𝐧𝐝𝐞𝐫𝐟𝐥𝐮𝐢𝐝 - HE/HIM are preferred.
-+ 𝐁𝐢𝐬𝐞𝐱𝐮𝐚𝐥 & Demisexual
+<img width="736" height="552" alt="shot by me @eglnyl" src="https://github.com/user-attachments/assets/876ce037-e403-49d2-a971-b51223f8cc96" />
+
+
+
+
+
+    
+<p align="center">
+<a href="https://straw.page/make?id=v-i-r-i-d-i-s">strawpage.</a>
+
   <p align="center">
   AdminVirus shippers dni always please. I have minor exceptions for friends.
-<p align="center">
-<img width="800" height="450" alt="image" src="https://github.com/user-attachments/assets/d319166b-8145-4bdb-a053-1612c3bd1679" />
-
-
-
-+ cred to @viniknp on Tumblr for the gif.
-
-
