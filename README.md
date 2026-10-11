@@ -15,3 +15,6 @@
 
   <p align="center">
   AdminVirus shippers dni always please. I have minor exceptions for friends.
+
+      
+𝘿𝙤 𝙣𝙤𝙩 𝙚𝙭𝙥𝙚𝙘𝙩 𝙠𝙞𝙣𝙙𝙣𝙚𝙨𝙨 𝙖𝙡𝙡 𝙩𝙝𝙚 𝙩𝙞𝙢𝙚.
