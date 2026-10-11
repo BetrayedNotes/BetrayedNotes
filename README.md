@@ -11,7 +11,7 @@
 
     
 <p align="center">
-<a href="https://straw.page/make?id=v-i-r-i-d-i-s">strawpage.</a>     <a href="https://betrayednotes.atabook.org">atabook.</a>
+<a href="https://v-i-r-i-d-i-s.straw.page/?template=true&embed=true">strawpage.</a>     <a href="https://betrayednotes.atabook.org">atabook.</a>
 
   <p align="center">
   AdminVirus shippers dni always please. I have minor exceptions for friends.
