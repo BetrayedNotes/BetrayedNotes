@@ -11,8 +11,10 @@
 
     
 <p align="center">
-<a href="https://betrayednotes.atabook.org">atabook.</a> , strawpage is under management.
+<a href="https://cake.avris.it/rC3">ALC.</a>
+<a href="https://betrayednotes.atabook.org">atabook.</a>
 
+    
   <p align="center">
   AdminVirus shippers dni always please. I have minor exceptions for friends.
 
