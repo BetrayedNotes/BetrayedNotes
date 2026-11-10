@@ -12,7 +12,7 @@
 <p align="center">
 <a href="https://cake.avris.it/rC3">ALC.</a>
 <a href="https://betrayednotes.atabook.org">atabook.</a>
-
+<a href="https://discord.gg/eNEVjceVzv">Discord L.A.B server.</a>
     
   <p align="center">
   AdminVirus shippers dni always please. I have minor exceptions for friends.
