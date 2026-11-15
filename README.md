@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=22&pause=1000&color=316749&width=435&lines=I+watched+you+bloom.;Into+the+prettiest+flower.;I+adored+you+so...;I+treated+you+as+my+own.;Yet+you+pushed+me+away.;You+used+me+for+my+kindness.;Now+all+that+you+will+see%2C;Are+my+cries+of+eternal+hatred.;My+hands+that+once+cradled+you%2C;Are+stained+in+your+crimson.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4802&pause=813&color=920000&width=435&lines=%22+I'll+leave+you+this+one+thing...+%22;%22+Destroy.+Everything.+%22;%22+Hey!+Are+you+okay%3F+%22)](https://git.io/typing-svg)
 
 
 <p align="center">
