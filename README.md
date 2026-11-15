@@ -7,9 +7,6 @@
 
 
 
-
-
-
     
 <p align="center">
 <a href="https://cake.avris.it/rC3">ALC.</a>
