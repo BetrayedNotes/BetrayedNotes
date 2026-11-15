@@ -2,7 +2,9 @@
 
 
 <p align="center">
-<img width="736" height="552" alt="shot by me @eglnyl" src="https://github.com/user-attachments/assets/876ce037-e403-49d2-a971-b51223f8cc96" />
+<img width="736" height="336" alt="image" src="https://github.com/user-attachments/assets/eca2e0e7-ad14-4768-99a1-c4cf4c7dabdd" />
+
+
 
 
 
@@ -18,7 +20,7 @@
   AdminVirus shippers dni always please. I have minor exceptions for friends.
 
  <p align="center">
-<img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/04ae5205-a8fd-4a0a-96e4-e265dba7aaa9" /> <img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/065007b1-42da-4a04-948c-c3bac36a195a" />
+<img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/04ae5205-a8fd-4a0a-96e4-e265dba7aaa9" />
 
 
 𝘿𝙤 𝙣𝙤𝙩 𝙚𝙭𝙥𝙚𝙘𝙩 𝙠𝙞𝙣𝙙𝙣𝙚𝙨𝙨 𝙖𝙡𝙡 𝙩𝙝𝙚 𝙩𝙞𝙢𝙚.
